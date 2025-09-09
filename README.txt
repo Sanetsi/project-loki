@@ -1,2 +1,2 @@
 jee jihuu
-juu jahuu
+juu ei kannata pelleillä

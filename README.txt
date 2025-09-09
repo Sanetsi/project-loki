@@ -1,8 +1,6 @@
-jee jihuu hihheli hei
-jee jihuu
 jee ------------> jihuu
 
-XDDDDDDDDDDDDDD
+I would like to know what is happening there
 
 jee jihuu
 juu jahuu
